@@ -1,0 +1,1 @@
+![[Linea separatoria.png]]
